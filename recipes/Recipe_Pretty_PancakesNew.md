@@ -1,8 +1,9 @@
 
 ![[Pancakes_image.jpeg]]
 
-## *:・ﾟ✧ Title Title Title Title Title Title ✧*:・ﾟ✧ .・゜
+ *:・ﾟPretty Pancakes ✧*:・ﾟ✧ .・゜
 A classic lazy Sunday recipe that comes together in under 10 minutes with just 7 pantry staple ingredients. Serves 4.
+A classic Sunday recipe that comes together in under 10 minutes with just 7 pantry staple ingredients. Serves 4.
 
 *Let's get started.*
 
