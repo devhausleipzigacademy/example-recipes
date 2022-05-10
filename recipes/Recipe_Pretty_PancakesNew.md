@@ -1,7 +1,7 @@
 
 ![[Pancakes_image.jpeg]]
 
-## *:・ﾟ✧ .Pretty Pancakes ✧*:・ﾟ✧ .・゜
+## *:・ﾟ✧ .Pretty ✧*:・ﾟ✧ .・゜
 A classic Sunday recipe that comes together in under 10 minutes with just 7 pantry staple ingredients. Serves 4.
 
 *Let's get started.*
