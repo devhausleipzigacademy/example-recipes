@@ -1,4 +1,4 @@
-# Schmorgurken
+# Schmorgurken-hallo there!
 ![[minis-schmorgurken.jpeg]]
 
 Not a traditional but nonetheless tasty and quick recipe for a delicious summer meal
