@@ -2,6 +2,12 @@
 
 Welcome!
 
+## List of recipes
+
+[[Carrot Cake]]
+
+[[Schmorgurken]]
+
 ## Terms of Service
 - No anchovies!
 - Only right shoes allowed.
