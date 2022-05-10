@@ -6,3 +6,6 @@ Welcome!
 - No anchovies!
 - Only right shoes allowed.
 - Eyebrows must be shaved.
+
+## Special Note
+- I hate children
