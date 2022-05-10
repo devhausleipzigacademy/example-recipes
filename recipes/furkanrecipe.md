@@ -1,5 +1,4 @@
-========================================
-=======================================Furkas favorite food = classical turkish food called doner.
+Furkas favorite food = classical turkish food called doner.
 
 ***  This is random  text copied from google ***
 
